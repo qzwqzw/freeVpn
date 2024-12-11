@@ -27,15 +27,6 @@
 **免费注册试用: https://hello36d.com/register?aff=E2Mnt8Qh**<br/>
 **免费注册试用: https://hello36d.com/register?aff=E2Mnt8Qh**<br/>
 
-| 套餐 | 永久流量 | 永久流量 | 永久流量| 永久流量 | 永久流量|
-| --- | ----- | --- | --------- | ---------- | ------------- |
-| 轻量套餐 | 200G | 30元  | 30元  | 30元  |  30元  |
-| 商务套餐 | 400G | 50元 | 50元 | 50元 |  50元 |
-
-**免费注册试用: https://hello36d.com/register?aff=E2Mnt8Qh**<br/>
-**免费注册试用: https://hello36d.com/register?aff=E2Mnt8Qh**<br/>
-**免费注册试用: https://hello36d.com/register?aff=E2Mnt8Qh**<br/>
-
 注：如果全部节点不可用，请先检查客户端是否最新版本。<br/>
   如果不是最新版本，请前往 Mikasa 官网下载最新版本。
 
